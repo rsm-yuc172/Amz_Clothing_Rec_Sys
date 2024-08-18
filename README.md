@@ -1,3 +1,4 @@
 # Amz_Clothing_Rec_Sys
-![Uploading wardrobesearch.png…]()
+![Uploading New-image-guidelines-for-clothing-on-Amazon.jpg…]()
+
 
